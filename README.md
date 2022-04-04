@@ -1,2 +1,4 @@
 # FaxGaybotz
 File botz
+NO WA :081261479077
+FILE BOTZ BY CX.XPLOID
